@@ -13,4 +13,6 @@ changeable and randomness may the nature.
 
 ## with neuroscience
 
+virtual synapse model to stimulus or inhibition.
+
 ## the future of human
