@@ -6,7 +6,7 @@ try to build an axiomatic system of consciousness
 ## bottom to top or top to bottom
 There are to main roadmap. One is from low level neuro system to high level, another is from human brain to low level. using human brain as model is easy to locate the function of some location, but hard to realize single neuro. From low level system can knew the role of every neuro.
 ## define consciousness
-
+changeable and randomness may the nature.
 ## the difference between human and animals
 
 ## copy or transfer?
